@@ -1,1 +1,1 @@
-# Magomedov Shamil
+# Магомедов Ш.И.
